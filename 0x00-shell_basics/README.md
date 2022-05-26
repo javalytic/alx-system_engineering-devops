@@ -1,1 +1,1 @@
-My other readme
+My name is Betty
